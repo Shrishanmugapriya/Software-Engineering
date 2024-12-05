@@ -1,1 +1,0 @@
-i am little star
